@@ -1,0 +1,14 @@
+---
+title: 'Just one more wash..........'
+date: 2007-06-14T18:38:00.000+10:00
+draft: false
+url: /2007/06/just-one-more-wash.html
+---
+
+I set a curse on the family this morning, promising the last clothes wash for the remaining two and a half days of our holidays. 1 toddler in undies, 2 dogs with an appetitie, a baby and a husband that can get carried away and forget himself, I should have known better. Felix our newly potty trained 2 plus year old forgot while immersed in the wonders of a Lakes Entrance Model railway. It took my husband, also immersed in the railway, over ten minutes to realise that Felix seemed to be standing in the one spot, in front of the same tunnel, with his legs slightly crossed. Not that standing in one spot and gaping for hours is out of the ordinary in the case of model railways, my husband assures me, appart from the occasional wave of the arm to reset the motion sensor that sets the trains off for another journey, the reality was an accident in his pants.  
+  
+Michael, the husband, cleaned him up before delivering him to me for an odd bit of op-shopping. The only technicality he failed on was leaving the bag with the mess with the two dogs in the car. Upon returning to the car, realising his mistake, and Matilda, the youger one delivering the final blow, in the form of a motion that required a full head to toe change, well let us just say I had to change her to stop him from losing it. The op-shop down the road provided some much needed pants. The car seats came off and it was off home to run the washing machine twice, woolen car seat cover and pooey clothes, the toddlers undies were so badly savaged by the teeth of a pointer (dog) that I could hardly make out the face of Bart the laborer or what ever his name is.  
+  
+Some beech play in wet sand and a storm approaching made for another wash. Then at 6:30, I thought it may be some of the sticky toffee pudding I had just dropped but on closer inspection, ther was more of it on the inside of her op-shop woolen overalls and there was no way I was going to lay my dessert spoon near this one. Another wool wash, worked out that we could wash the other car seat cover.  
+  
+Well my husband swore we would never be the parents delving into toilet antics of our kids and making public exhibition of thier scribble art, but he had more to do with this story than you can imagine. As for the pictures, he seems to be cheating a little by doing most of them for the kids and only then letting then scribble over the top. Again most of these are train pictures so more of that motionless gaping, Felix loves it but what will Matilda thinks when she is at that age? The joy and art of parenthood and travel!

@@ -1,0 +1,8 @@
+---
+title: 'Happy Birthing Day'
+date: 2012-03-14T14:59:00.003+11:00
+draft: false
+url: /2012/03/happy-birthing-day.html
+---
+
+A year has flown past already since the happy arrival of my second son Ambrose. While Ambrose continues to master the art of walking, negotiating interactions with his siblings and socialising with his own age group I also continue to learn and develop my art of being a mother. Three is a crowd. We are now outnumbered and have to juggle time with much poise and direction but we do on a number of occasions fall in a heap. what i love about parenting with my best friend is that we complement one another. Where I might be good at organising activities and social events for my children Michael has the patience and passion to draw, sing and read to the children for hours every day. This parenting journey has deepen my love for a man I feel in love with over 13 years ago as a very young women. Michael and I sat in bed with Ambrose this morning and reminisced about that first morning we met him a year ago. knowing smiles flashed across our faces and hearts. What made the morning even more beautiful was the spontaneous happy birthday and presentation of a new tunnel for Ambrose at 6 am from Felix and Matilda. Their delight in sharing his first birthday was palpable. He is joy to us all. Ambrose has great delight in playing with both his sibling and cousin Sophie and they in him. WHat I find the most fasinating is my love seems to boil over for all three children. I though my heart was filled when I met Felix those 7.5 years ago but the human heart has the capacity beyond what I was aware. And so on this first birthday I feel inspired to tell everyone how in love I am with my children.

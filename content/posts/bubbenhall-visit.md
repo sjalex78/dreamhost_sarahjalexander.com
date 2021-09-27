@@ -1,0 +1,8 @@
+---
+title: 'Bubbenhall Visit'
+date: 2008-06-02T17:02:00.000+10:00
+draft: false
+url: /2008/06/bubbenhall-visit.html
+---
+
+We traveled by train to to visit Uncle Philip and Sanna. After a claustrophobic week in London it was literally a breath of fresh air when arriving at their home. Felix and Matilda felt right at home, dogs Jess and Dora where immediately taken out to the wonderful Wendy house. We were fed so well. I don't think we will need to eat for a week. Aunt Elizabeth also arrived for lunch on the Saturday after which we went for a walk to the local park with the dogs. Felix and Matilda enjoyed the walk. Felix really enjoyed walking Dora, a nine month old "Westie", a perfect size for him to lead. After a week with an extremely limited toy supply (we even lost Matilda's only toy dolly "baba" on the flight) Philip and Sanna's house was a treasure trove of toy, books and activity surprises. The fresh air and the alcohol consumed meant that we all slept well in small very spongy beds. Sunday morning Felix and Matilda again enjoyed playing with Dora and a basket of naked "Barbies". We attended the Bubbenhall Church where Felix rang the bells cast 400 plus years ago. Thomas joined us for another very full lunch. A miniature railway ran rides in the afternoon, Felix managed to ride the steam and diesel engines with a permanent smile across his face.. Felix was extremely disappointed that we were to leave and return to London, pleading with us to just stay "another couple of long minutes more".
